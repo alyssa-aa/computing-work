@@ -1,4 +1,4 @@
 # computing work
 **alyssa :)**
 
-*~ nctzen ~*
+~ nctzen ~
